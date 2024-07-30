@@ -7,4 +7,5 @@
 ### Fun Facts
 - 🌍 I love traveling and exploring new cultures.
 - 📚 Avid reader of thriller novels.
+- 🐶 Love dogs!
 - 🎨 Enjoy art and painting in my free time.
