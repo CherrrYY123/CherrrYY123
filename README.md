@@ -8,4 +8,5 @@
 - 🌍 I love traveling and exploring new cultures.
 - 📚 Avid reader of thriller novels.
 - 🐶 Love dogs!
+- 📖 A huge fan of Harry Potter books and movies!
 - 🎨 Enjoy art and painting in my free time.
